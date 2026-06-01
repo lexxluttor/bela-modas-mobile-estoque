@@ -1,1 +1,0 @@
-# bela-modas-mobile-estoque
